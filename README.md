@@ -4,7 +4,8 @@
 - 👯 Ask me about Ex-Back Spell
 - 🤔 Ask me about Lottery Spell
 - 💬 Ask me about any Spell
-- 📫 How to reach me: drchudospelltemple@outlook.com
+- 📫 Email: drchudospelltemple@outlook.com
+- 💬 Phone/WhatsApp: +1 765 400 1410
 
 <!--
 **drchulo/drchulo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
